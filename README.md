@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **nilachalasahoo9777@gmail.com**
 
-- 📝 Here is my Resume [https://drive.google.com/drive/folders/19hp4qyT1LlPuvJdBdYhnewmqiMXG90T6?usp=drive_link](https://drive.google.com/drive/folders/19hp4qyT1LlPuvJdBdYhnewmqiMXG90T6?usp=drive_link)
+- 📝 Here is my Resume [CV_Nilachala Sahoo](https://drive.google.com/file/d/1rY44_lkccANohNkJRYoe5RnPnSwmHkCe/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
